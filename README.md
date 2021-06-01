@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kaylakusek
 - 👀 I’m interested in many things icluding crypto, travel, homemaking and cooking!
-- 🌱 I’m currently learning about crypto and ivesting to start a new family buisness with my husband!
-- 💞️ I’m looking to collaborate on crypto, investing and mining crypto!
+- 🌱 I’m currently learning about crypto and investing to start a new family buisness with my husband! I'm also learning to be his assistant in the buisness!
+- - 💞️ I’m looking to collaborate on crypto, investing and mining crypto!
 - 📫 How to reach me ...
 
 <!---
